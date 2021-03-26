@@ -9,7 +9,7 @@ From central Florida, currently living in Philadelphia. Now a data engineering t
 # My core tenets
 **We should do our best to treat everyone well.** This of course takes into account each person's definition of what treating them 'well' is -- be considerate, be thoughtful, be sensitive.
 
-**Don't forget to be a human.** Not everything is work and boundaries are good. Be focused when you need to, get things done on time and well, but ultimately take care of *you*.
+**Don't forget to be a human.** Not everything is work and boundaries are good. Be focused when you need to, get things done on time and well, but ultimately take care of *you*. Rest is important.
 
 # I’m at my best
 - Before 3PM, with tea
@@ -45,7 +45,7 @@ Tell me things! I like knowing what's going on and tend to keep an eye on what's
 Always allow the option to not have video on/not show up to social events. I'm a solid introvert, so I have to really consider where I use my energy -- can't always spend it worrying about what my hair is doing in social situations.
 
 # Other useful or fun info about me
-I'm learning Mandarin Chinese for important tea reasons, so C-dramas and pop music from China and Taiwan are my jam right now. 
-I love Pride & Prejudice, I’m a watcher of many Twitch streams, vegan, I get fiery about injustice.
-I dig listening to podcasts about social issues (and surprising history, like with You’re Wrong About) while walking the dog.
-I have a million and one skills: juggling, knitting, painting, martial arts, etc.
+- I'm learning Mandarin Chinese for important tea reasons, so C-dramas and pop music from China and Taiwan are my jam right now. 
+- I love Pride & Prejudice, I’m a watcher of many Twitch streams, I've been vegan for 10 years, I get fiery about injustice.
+- I dig listening to podcasts about social issues (and surprising history, like with You’re Wrong About) while walking the dog.
+- I have a million and one skills: juggling, knitting, painting, martial arts, etc.
