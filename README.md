@@ -4,7 +4,7 @@
 A way to get to know me, for both friends and teammates.
 
 # The basics
-From central Florida, currently living in Philadelphia. Now a data engineering type, but used to be a field botanist/ecologist. Pronouns they/them. Sometimes I'm known as the data dragon.
+From central Florida, currently living in Philadelphia. Now a data engineering type, but used to be a field botanist/ecologist. Pronouns they/them. Sometimes I'm known as the data dragon. 🐉
 
 # My core tenets
 **We should do our best to treat everyone well.** This of course takes into account each person's definition of what treating them 'well' is -- be considerate, be thoughtful, be sensitive.
