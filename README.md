@@ -14,7 +14,8 @@ Central Florida -> Pittsburgh, PA -> Philadelphia, PA. Graduated from the Univer
 # I’m at my best
 - Before 3PM, with tea
 - Working solo most of the time
-- In decluttered but not spotless physical and virtual spaces: Inbox 5 (rather than 0) is what I strive for.
+- In decluttered but not spotless physical and virtual spaces: Inbox 5 (rather than 0) is what I strive for
+- When meetings are collected rather than spread out throughout a day
 
 # I can’t stand
 **Being asked to come up with solutions on the spot.** My brain doesn't work like this. I will panic from wanting to come up with the 'perfect' idea fast, and answers won't be had. 'Brainstorming' sessions are the worst.
