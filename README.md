@@ -4,7 +4,7 @@
 A way to get to know me, for both friends and teammates.
 
 # The basics
-Central Florida -> Pittsburgh, PA -> Philadelphia, PA. Now a data engineering type, but used to be a field botanist/ecologist. Pronouns they/them. Sometimes I'm known as the data dragon. 🐉
+Central Florida -> Pittsburgh, PA -> Philadelphia, PA. Graduated from the University of Florida twice (B.S. Ecology, M.A. Latin American Studies). Now a data engineering type, but used to be a field botanist/ecologist. Pronouns they/them. Sometimes I'm known as the data dragon. 🐉
 
 # My core tenets
 **We should do our best to treat everyone well.** This of course takes into account each person's definition of what treating them 'well' is -- be considerate, be thoughtful, be sensitive.
