@@ -27,6 +27,8 @@ Communication: Contact on Flowdock is best for quick information/requests; I won
 
 I need time to consider what's a good idea or to just mull things over, and this will mean I'm usually quiet in meetings larger than 1-on-1s. I am engaged, but thoughtful and want to test things out first. I'll still speak up for clarification for my work or things that will affect my work.
 
+I try to be considerate in letting people know when something will be finished/delivered, and keeping them updated if plans change (as they often do). It will be done! Just maybe not when initially thought.
+
 If something's not right, would rather know right away, but I'm working on not immediately jumping on every little thing that needs to be done.
 
 I try to get everyone to a basic understanding of what we're doing and why, and will add context to a conversation if I think it's missing for someone.
