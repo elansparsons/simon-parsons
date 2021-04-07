@@ -48,7 +48,7 @@ Tell me things! I like knowing what's going on and tend to keep an eye on what's
 Always allow the option to not have video on/not show up to social events. I'm a solid introvert, so I have to really consider where I use my energy -- can't always spend it worrying about what my hair is doing in social situations.
 
 # Other useful or fun info about me
-- I'm learning Mandarin Chinese for important tea reasons, so C-dramas and pop music from China and Taiwan are my jam right now. 
+- I'm learning Mandarin Chinese for important tea reasons, so C-dramas and pop music from China and Taiwan are my jam right now. Danmei (literally 'indulging beauty') is my favorite genre of anything at the moment -- martial arts and gay beauty, what's not to love?
 - I love Pride & Prejudice, I’m a watcher of many Twitch streams, I've been vegan for 10 years, I get fiery about injustice.
 - I dig listening to podcasts about social issues (and surprising history, like with You’re Wrong About) while walking the dog.
 - I have a million and one skills: juggling, knitting, painting, martial arts, etc. Few of them are useful.
